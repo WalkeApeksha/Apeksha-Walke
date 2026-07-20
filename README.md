@@ -76,8 +76,8 @@ I am passionate about leveraging data to solve complex problems and creating imp
 
 ## 🤝 Connect With Me
 
-- 💼 LinkedIn: https://linkedin.com/in/YOUR_LINKEDIN
-- 📧 Email: YOUR_EMAIL@example.com
+- 💼 LinkedIn: https://www.linkedin.com/in/apeksha-walke-79210932b?
+- 📧 Email: walkeapeksha435@gmail.com
 
 
 ---
